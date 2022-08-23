@@ -1,4 +1,4 @@
-## Dviž is now DigitalAndy.eu
+## Dviž is now DigitalAndy
 
 We transformed to a tiny digital artists collab **DigitalAndy.eu | Web Development, Design & Marketing** since 2021.
 
